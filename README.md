@@ -1,0 +1,2 @@
+# trading
+ Zona de Entrada
